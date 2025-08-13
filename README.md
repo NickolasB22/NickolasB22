@@ -7,5 +7,7 @@
 Meu nome é Nickolas sou aluno do 1 A
 🥇🇧🇷
 Tenho 16 anos
+
+Amo Futebol, meu esporte favorito.
   
 ![](https://media1.tenor.com/m/wrJgo6cItioAAAAC/lewandowski-barcelona.gif)
